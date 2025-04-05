@@ -1,2 +1,2 @@
 # kapusuzoglu
-I love learning
+addicted to research and learning...
